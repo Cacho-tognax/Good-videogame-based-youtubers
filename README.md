@@ -3,7 +3,7 @@ SHAMMY GOOD
 
 Here's the list of who I think you should be watching on youtube if you want scripted content about videogames in the broad sense
 
-#Adam millard
+- Adam millard
 Focuses on looking at aspects that games schare from a game design prospect, while also covering specific games and how ther mechancis are designed, for a suggestion on a video to watch to get in his channel his video on [satisfactory](https://youtu.be/pO9HPW5uqBg) is neat , if you want something that focuses a bit more on game design concepts, here's one on [RNG](https://youtu.be/F5XM2DmUdmw)
 
 - Leonardo da Sidci, low only because he uploads and has uploaded very little and his last video had audio mixing problems, mostly focuses on how games feel and can make you feel, in a very soothing voice, altough one video I already posted had the pauses in speech annoyingly cut, for a better introduction I think this one on [depression and videogames](https://youtu.be/pIvcys_IPcQ) is great , or for something less scary, have this video on [the history of walking simulators](https://youtu.be/wl2zgLrfbTQ)
