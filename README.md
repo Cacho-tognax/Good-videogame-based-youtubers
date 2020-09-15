@@ -1,7 +1,7 @@
 # Good Videogame Based Youtuber's
 SHAMMY GOOD
  
-Here's the list of who I think you should be watching on youtube if you want scripted content about videogames in the broad sense
+Here's the list of who I think you should be watching on youtube if you want scripted content about videogames in the broad sense, rouglhgly from "worst" to "best" in my humble opinion
 
 1. [Shammy](#Shammy)
 1. [Crowbcat](#Crowbcat)
