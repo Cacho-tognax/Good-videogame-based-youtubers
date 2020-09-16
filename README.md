@@ -33,29 +33,29 @@ low only because he uploads and has uploaded very little and his last video had 
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJzNCdfnbxtWTuqZtKhVJuM0qILeQCY5_45gdT7zFQ=s100-c-k-c0xffffffff-no-rj-mo">
 
 I don't believe if you tell me you don't know him, but if you don't he makes very humoristic reviews of various games, sometimes with NSFW themes and parts, I refuse to put a video in tho, I'm sure you know him, here mostly for completeness and it's the pursest form of review between the guys here, going in depth in exploits at most.
- 
+ <br/><br/>
 # 2clicksphilips
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxybFq6Y8SFOuyvWqldJPcXbCps-gR_Qp2z4jKt=s100-c-k-c0xffffffff-no-rj-mo">
 
 he talks about his impressions mostly, Not super in depth on design but his opinions are often interesting, have his [video on subnautica](https://youtu.be/-KJ9nJojIjA)
 <br/><br/>
- 
+ <br/><br/>
 # Joseph Anderson
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJyzhyEPY59WdlpdTXbkW35d-6XhxxDd43M7v5TB=s100-c-k-c0xffffffff-no-rj-mo">
 
 very long essays on some games, sometimes he gets stuck on details and may misinsterpet some things, but overall I really like his stuff and how in depth goes, have one video about [what remains of edith finch](https://youtu.be/6bMn4CoyUkM) as my suggested introductory one
 <br/>
-
+<br/><br/>
 # RagnarRox
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJzkTPkoCNcy-Ess4f2VaTq0jbi2rtiByvDmAGwr=s100-c-k-c0xffffffff-no-rj-mo">
 
 he's a digger of games, trying to give the spotlight to games that didn't get it, pointing out what makes the game he's talking about so unique and interesting, have one of his recent videos where he talks only about one game, going trough most of it, and the game in question is one of [photographing ghosts](https://youtu.be/_1A1br1FYrA). <br/><br/>
- 
+ <br/><br/>
 # MadaloreGaming
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxGcxLajZTxgCXZCR8Lb9-K4S5G7a9yAmDBbsW39g=s100-c-k-c0xffffffff-no-rj-mo">
 
 you probably know this one too, mostly a reviewer, covers games of various genres, he gets in some "game designer" segment since he sometimes talks on how he would have fixed a problem in the game, I think his most recent video on [the forest](https://youtu.be/YZb1dBMGN4k) gives an all around look at what he does  <br/><br/>
- 
+ <br/><br/>
 # Civvie 11
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJynStEC1kmpt1-QT8qwPlCe-zRQFO46NrR9Gu47jA=s100-c-k-c0xffffffff-no-rj-mo">
 
