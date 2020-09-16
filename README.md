@@ -39,7 +39,7 @@ I don't believe if you tell me you don't know him, but if you don't he makes ver
 
 he talks about his impressions mostly, Not super in depth on design but his opinions are often interesting, have his [video on subnautica](https://youtu.be/-KJ9nJojIjA)
 <br/><br/>
- <br/><br/>
+ <br/>
 # Joseph Anderson
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJyzhyEPY59WdlpdTXbkW35d-6XhxxDd43M7v5TB=s100-c-k-c0xffffffff-no-rj-mo">
 
@@ -50,12 +50,12 @@ very long essays on some games, sometimes he gets stuck on details and may misin
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJzkTPkoCNcy-Ess4f2VaTq0jbi2rtiByvDmAGwr=s100-c-k-c0xffffffff-no-rj-mo">
 
 he's a digger of games, trying to give the spotlight to games that didn't get it, pointing out what makes the game he's talking about so unique and interesting, have one of his recent videos where he talks only about one game, going trough most of it, and the game in question is one of [photographing ghosts](https://youtu.be/_1A1br1FYrA). <br/><br/>
- <br/><br/>
+ <br/>
 # MadaloreGaming
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxGcxLajZTxgCXZCR8Lb9-K4S5G7a9yAmDBbsW39g=s100-c-k-c0xffffffff-no-rj-mo">
 
 you probably know this one too, mostly a reviewer, covers games of various genres, he gets in some "game designer" segment since he sometimes talks on how he would have fixed a problem in the game, I think his most recent video on [the forest](https://youtu.be/YZb1dBMGN4k) gives an all around look at what he does  <br/><br/>
- <br/><br/>
+ <br/>
 # Civvie 11
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJynStEC1kmpt1-QT8qwPlCe-zRQFO46NrR9Gu47jA=s100-c-k-c0xffffffff-no-rj-mo">
 
@@ -70,7 +70,7 @@ here we got hard game design stuff again, looking at either a game and what it c
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJwALL3GY1EF-X1VNSsimlg8HiJeOP9bbxrZAVIUDQ=s100-c-k-c0xffffffff-no-rj-mo">
 
 nicely paced analysis and discussion on very broad topics about videogames, this last video of his about [writing on games](https://youtu.be/Vr6pA15xuFc) possibly partially inspired me in making this list and it's kinda about what I like about this kind of youtuber
-<br/>
+<br/><br/><br/>
  
 # Errant signal
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxMVLaQQ11DxmCVusalfCiS_yuGSOYBQ1Dj_6PP=s100-c-k-c0xffffffff-no-rj-mo">
@@ -81,7 +81,7 @@ nicely paced analysis and discussion on very broad topics about videogames, this
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJx3CSdya4XyzzMTbtNNoEHRuWnHj2HofwvcY7w=s100-c-k-c0xffffffff-no-rj-mo">
 
 The creator of the most excellent [freeman's mind](https://www.youtube.com/watch?v=5SQhfkpX9bc&list=PL6PNZBb6b9LvDWpI-5CPYUxG1Rnm-vr9V) and other such series, sometimes talks I guess mildly politcally about how things SHOULD be for the industry of videogames, including his belief that any game that relies on a cetral server should ensure it can be played after it shuts down or refund the consumers, but all of this comes from his passion and love for the whole thing, I love to see how deep he's willing to go for a game, have his game dungeon episode on [Baldies](https://youtu.be/nKK9r2Ct0D8), a game you probably don't know of but that will make you nostalgic if you started your gaming journey with dos games.
-<br/><br/>
+<br/>
 # Crowbcat
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJyab8sjaDdkdCYUVTNMQMWDqZ7vInMt1kO47MqHkg=s100-c-k-c0xffffffff-no-rj-mo">
 
