@@ -22,7 +22,7 @@ Here's the list of who I think you should be watching on youtube if you want scr
 # Adam Millard
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJzWoccfCKK-QcbzUVznkyuB2CzMC7Et0pd04dUfXw=s100-c-k-c0xffffffff-no-rj-mo">
 
-Focuses on looking at aspects that games schare from a game design prospect, while also covering specific games and how ther mechancis are designed, for a suggestion on a video to watch to get in his channel his video on [satisfactory](https://youtu.be/pO9HPW5uqBg) is neat , if you want something that focuses a bit more on game design concepts, here's one on [RNG](https://youtu.be/F5XM2DmUdmw)
+Focuses on looking at aspects that games schare from a game design prospect, while also covering specific games and how ther mechancis are designed, for a suggestion on a video to watch to get in his channel his video on [satisfactory](https://youtu.be/pO9HPW5uqBg) is neat , if you want something that focuses a bit more on game design concepts, here's one on [RNG](https://youtu.be/F5XM2DmUdmw) <br/><br/>
  
 # Leonardo da Sidci
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJw2ZCRU1-dV5DZ4x3liOgot1YJIFFOQfBbY4Nrtlw=s100-c-k-c0xffffffff-no-rj-mo">
