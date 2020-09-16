@@ -50,12 +50,10 @@ very long essays on some games, sometimes he gets stuck on details and may misin
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJzkTPkoCNcy-Ess4f2VaTq0jbi2rtiByvDmAGwr=s100-c-k-c0xffffffff-no-rj-mo">
 
 he's a digger of games, trying to give the spotlight to games that didn't get it, pointing out what makes the game he's talking about so unique and interesting, have one of his recent videos where he talks only about one game, going trough most of it, and the game in question is one of [photographing ghosts](https://youtu.be/_1A1br1FYrA). <br/><br/>
- <br/>
 # MadaloreGaming
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxGcxLajZTxgCXZCR8Lb9-K4S5G7a9yAmDBbsW39g=s100-c-k-c0xffffffff-no-rj-mo">
 
 you probably know this one too, mostly a reviewer, covers games of various genres, he gets in some "game designer" segment since he sometimes talks on how he would have fixed a problem in the game, I think his most recent video on [the forest](https://youtu.be/YZb1dBMGN4k) gives an all around look at what he does  <br/><br/>
- <br/>
 # Civvie 11
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJynStEC1kmpt1-QT8qwPlCe-zRQFO46NrR9Gu47jA=s100-c-k-c0xffffffff-no-rj-mo">
 
@@ -87,7 +85,7 @@ The creator of the most excellent [freeman's mind](https://www.youtube.com/watch
 
 ok a bit of a tangent from the others, but his videos really make me feel, since it's just 3 minutes I say just watch his last(hopefully only for now) [video](https://youtu.be/3Q0nZDMOJ2I)
 <br/><br/>
- 
+ <br/>
 # Shammy
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJwxVF0h91q7igy1UKw4qC8jRJl0zzabVBc6ESHRZw=s100-c-k-c0xffffffff-no-rj-mo">
 
