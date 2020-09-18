@@ -1,14 +1,14 @@
 # Good Videogame Based Youtuber's
 SHAMMY GOOD
  
-Here's the list of who I think you should be watching on youtube if you want scripted content about videogames in the broad sense, rouglhgly from "worst" to "best" in my humble opinion
+Here's the list of who I think you should be watching on youtube if you want scripted content about videogames in the broad sense, rouglhgly from "worst" to "best" in my humble opinion (here they are best to worst since I don't know how to do a reverse numbered list)
 
 1. [Shammy](#Shammy)
 1. [Crowbcat](#Crowbcat)
 1. [Accursed Farms](#Accursed-Farms-AKA-Ross-Scott)
 1. [Errant Signal](#Errant-Signal)
-1. [Jacob Geller](#Jacob-Geller)
 1. [Super Bunnyhop](#Super-Bunnyhop)
+1. [Jacob Geller](#Jacob-Geller)
 1. [Game Maker's Toolkit](#Game-Maker's-Toolkit)
 1. [Civvie 11](#Civvie-11)
 1. [MadaloreGaming](#MadaloreGaming)
