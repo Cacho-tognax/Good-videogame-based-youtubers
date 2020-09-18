@@ -8,7 +8,7 @@ Here's the list of who I think you should be watching on youtube if you want scr
 1. [Accursed Farms](#Accursed-Farms-AKA-Ross-Scott)
 1. [Errant Signal](#Errant-Signal)
 1. [Jacob Geller](#Jacob-Geller)
-1. [Super Bunnyhop](#Super Bunnyhop)
+1. [Super Bunnyhop](#Super-Bunnyhop)
 1. [Game Maker's Toolkit](#Game-Maker's-Toolkit)
 1. [Civvie 11](#Civvie-11)
 1. [MadaloreGaming](#MadaloreGaming)
