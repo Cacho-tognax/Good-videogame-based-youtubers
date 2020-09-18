@@ -8,6 +8,7 @@ Here's the list of who I think you should be watching on youtube if you want scr
 1. [Accursed Farms](#Accursed-Farms-AKA-Ross-Scott)
 1. [Errant Signal](#Errant-Signal)
 1. [Jacob Geller](#Jacob-Geller)
+1. [Super Bunnyhop](#Super Bunnyhop)
 1. [Game Maker's Toolkit](#Game-Maker's-Toolkit)
 1. [Civvie 11](#Civvie-11)
 1. [MadaloreGaming](#MadaloreGaming)
@@ -69,6 +70,12 @@ here we got hard game design stuff again, looking at either a game and what it c
 
 nicely paced analysis and discussion on very broad topics about videogames, this last video of his about [writing on games](https://youtu.be/Vr6pA15xuFc) possibly partially inspired me in making this list and it's kinda about what I like about this kind of youtuber
 <br/><br/><br/>
+
+# Super Bunnyhop
+ <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxFfS9cCbJXYGhhma-49Jd32jnJeBNlqT5UH0JE=s88-c-k-c0x00ffffff-no-rj-mo">
+ 
+ the guy that looks at games as artform and cultural phenomenon the most, going to even sayhing that a game manaing to make it's point is more important than his enjoyment of it, you could start with his video on [how vidoegames depict global warming trought the decades](https://youtu.be/9n78WYo-SQQ) or, to go to one of his most "tangent" videos, on a [metal gear solid escape room](https://youtu.be/xO-3ecfgSt4)
+ <br/><br/>
  
 # Errant signal
 <img align="left" style="padding-right:5px;" src="https://yt3.ggpht.com/a/AATXAJxMVLaQQ11DxmCVusalfCiS_yuGSOYBQ1Dj_6PP=s100-c-k-c0xffffffff-no-rj-mo">
